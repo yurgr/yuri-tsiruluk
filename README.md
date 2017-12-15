@@ -1,1 +1,1 @@
-# yuri-tsiruluk
+# yuri-tsirulik
